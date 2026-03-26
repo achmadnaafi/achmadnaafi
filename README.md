@@ -74,8 +74,8 @@
 ## 📫 Connect
 
 * 📧 Email: achmadnurnaafi123@gmail.com
-* 📷 Instagram: https://instagram.com/achmad.naafi_
-* 💼 LinkedIn: https://linkedin.com/in/achmad-nurnaafi
+* 📷 Instagram: https://instagram.com/achmad.naafi_/
+* 💼 LinkedIn: https://linkedin.com/in/achmad-nurnaafi/
 ---
 
 ## ⚡ Perspective
